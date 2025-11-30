@@ -1,1 +1,1 @@
-#i know this is probably not going to be popular or stuff, but if you accidentally scrolled down and saw this repsitory, pls make sure to do something. a single line code is fine, it is worth a lot for me.
+# i know this is probably not going to be popular or stuff, but if you accidentally scrolled down and saw this repsitory, pls make sure to do something. a single line code is fine, it is worth a lot for me.
